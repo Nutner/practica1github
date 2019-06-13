@@ -1,4 +1,4 @@
-Git nuestro
+REZO OBLIGATORIO ANTES DE ACOSTARSE Y AL LEVANTARSE
 
 *Git* nuestro que estas en los *repos*
 
